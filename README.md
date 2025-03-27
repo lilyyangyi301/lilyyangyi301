@@ -36,6 +36,6 @@ I’ve spent the **last three New Years in Japan**! 🎌🍜✈️
 
 ## 📫 How to reach me
 - [LinkedIn](https://www.linkedin.com/in/lily-yy/)  
-- 📧 y852yang@uwaterloo.ca
+- [y852yang@uwaterloo.ca](mailto:y852yang@uwaterloo.ca)
 
 Thanks for stopping by! 😊
